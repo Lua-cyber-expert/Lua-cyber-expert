@@ -1,6 +1,6 @@
 ## oie povo lindo, bem vindos ao meu perfil 👋
 meu nome é Luana e eu estudo computação pelo o alura🌸.
-![https://br.pinterest.com/pin/828310556471699308/]
+![https://www.google.com/imgres?q=loli%20colorida%20gif&imgurl=https%3A%2F%2Fi.pinimg.com%2Foriginals%2Fa8%2Fc4%2F8c%2Fa8c48c8301e877172178184db3409aa9.gif&imgrefurl=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F821062575809322004%2F&docid=8OfGJyOpwbDV2M&tbnid=FQAPywsW35XPSM&vet=12ahUKEwjskq_bsbuJAxWXGrkGHXzMGckQM3oECBUQAA..i&w=250&h=250&hcb=2&itg=1&ved=2ahUKEwjskq_bsbuJAxWXGrkGHXzMGckQM3oECBUQAA]
 
 
 <!--
