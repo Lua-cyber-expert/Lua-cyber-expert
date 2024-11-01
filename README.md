@@ -1,5 +1,6 @@
 ## oie povo lindo, bem vindos ao meu perfil 👋
 meu nome é Luana e eu estudo computação pelo o alura🌸.
+![]https://br.pinterest.com/pin/828310556471699308/
 
 <!--
 **Lua-cyber-expert/Lua-cyber-expert** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
