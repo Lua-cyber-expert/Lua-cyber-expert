@@ -1,4 +1,4 @@
-## oi povo lindo, bem vindos ao meu perfil 👋
+## Oi povo lindo, bem vindos ao meu perfil! 👋
 meu nome é Luana e eu estudo computação pelo o alura🌸.
 
 
